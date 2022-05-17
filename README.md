@@ -1,0 +1,1 @@
+# QuroniKarimTarjimasi.github.io
